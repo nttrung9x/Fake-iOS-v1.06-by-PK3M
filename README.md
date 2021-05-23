@@ -57,7 +57,7 @@ Link tool: https://drive.google.com/folderview?id=1m-CQaPKuUggqGFWQyg7FISYuqqM5R
 Hướng dẫn Fix full iphone lock với ICCID thần thánh (iccid perfect mode for locked fix full)
 
 
-
+https://www.youtube.com/watch?v=2NSUyf07ZLY
 
 
 
